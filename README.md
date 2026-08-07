@@ -1,0 +1,1 @@
+# obsidiots_resource
